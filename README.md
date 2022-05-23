@@ -4,3 +4,4 @@
 - ☕ I'm currently learning Java and other things
 - 🌈 Kinda lesbo
 
+![loving declaration](https://i.imgur.com/oSCl2il.png "nothin in the world is prettier than you")
